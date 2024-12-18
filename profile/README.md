@@ -9,6 +9,8 @@ En el ámbito de los casinos online, Pin Up destaca por su vasta colección de j
 
 Las tragamonedas, en particular, son uno de los principales atractivos de Pin Up Casino. Con temáticas variadas y bonificaciones atractivas, los jugadores tienen la oportunidad de ganar grandes premios. Además, el casino ofrece promociones y bonificaciones de bienvenida para nuevos usuarios, lo que permite a los jugadores empezar su experiencia con más oportunidades.
 
+![Pin Up](https://ibb.co/L0XYJmV)
+
 ## Apuestas Deportivas: Acción en Vivo y Mercados Diversos
 
 Pin Up también sobresale en el mundo de las apuestas deportivas. Con una amplia gama de deportes para apostar, desde el fútbol (el deporte más popular en Chile) hasta tenis, baloncesto, hockey sobre hielo y mucho más, los usuarios tienen acceso a una variedad de mercados y opciones de apuestas.
