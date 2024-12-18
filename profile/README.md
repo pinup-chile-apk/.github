@@ -66,3 +66,7 @@ Pin Up Casino y Apuestas Deportivas en Chile ofrece una experiencia completa par
 ![Pin Up Chile](https://i.postimg.cc/sgXcfHqB/logo-1-1.png)
 ![Pin Up deportes](https://i.postimg.cc/nCSZJSsb/14-2040x1020.png)
 ![Pin Up apuestas](https://i.postimg.cc/XpY3t6Yk/15-2040x1020.png)
+![Pin Up bonos](https://i.postimg.cc/jCZCDXWv/bonos-apuestas.png)
+![Pin Up app](https://i.postimg.cc/svLXcg4h/pin-up-app-1.png)
+![Pin Up bet](https://i.postimg.cc/BLJQ6L4d/pinup-bet.png)
+![Pin Up registro](https://i.postimg.cc/18NzY1vY/registro-en-pinup.png)
