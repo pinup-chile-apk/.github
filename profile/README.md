@@ -19,6 +19,8 @@ Las apuestas en vivo son uno de los puntos fuertes de la plataforma. Los usuario
 
 ➤➤➤ [Regístrate y consigue tu primer bono de depósito](https://tinyurl.com/34jypvsw "Regístrate y consigue tu primer bono de depósito")
 
+![PinUp Bet](https://i.postimg.cc/Hxkmxg0G/pinup-bet.png)
+
 ## Seguridad y Confianza
 
 Pin Up Casino y Apuestas Deportivas se preocupa por la seguridad de sus usuarios, utilizando tecnologías avanzadas de encriptación para proteger las transacciones y la información personal. Además, la plataforma está regulada por autoridades de juegos de azar, lo que garantiza un entorno de juego justo y transparente.
